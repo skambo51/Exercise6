@@ -1,1 +1,1 @@
-# Exercise6
+Ævar Örn og Örn Trausti
